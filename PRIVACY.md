@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-This privacy policy applies to the Bubble Notice app for , and mobile devices, together with any related services operated by Grace Chan (collectively, the "Application"). Grace Chan is hereby referred to as the "Service Provider".
+This privacy policy applies to the App Oops app for , and mobile devices, together with any related services operated by Grace Chan (collectively, the "Application"). Grace Chan is hereby referred to as the "Service Provider".
 
 **Information Collection and Use**
 
